@@ -11,7 +11,7 @@ I'm a Software Engineer🤓
 - 💞️ I’m looking to collaborate on Software Engineering projects.
 - 📫 How to reach me: <a href="mailto:joelissaferguson@gmail.com">joelissaferguson@gmail.com</a>
 - 💁🏽‍♀️ Pronouns: She/Her
-- ⚡️ Fun fact: I love Harry Potter (Team Slytherin🐍), Marvel 🦸🏽‍♀️, & Roller Coasters🎢
+- ⚡️ Fun fact: I love Harry Potter (Team Ravenclaw), Marvel 🦸🏽‍♀️, & Roller Coasters🎢
 
 ### 🤝 Connect with me:
 <a href="www.linkedin.com/in/joelissaferguson">
